@@ -1,5 +1,5 @@
 # 🍞. 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Your+slowly+melting+away+from+me;Why+can't+you+stay+some+more%3F+;Please+don't+leave." alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Lets+go+to+heaven.;Lets+go+to+heaven.;A+fun+farewell+for+me+and+you;%2C+just+the+two+of+us.;Lets+go%2C+lets+go+to+heaven;In+a+sky+just+for+us%2C+;Never+to+be+bothered;By+anyone+anymore.)](https://git.io/typing-svg)
 
 
 
@@ -25,4 +25,4 @@ W2iuf.
 
 
 
-if arguing or fighting at the moment, please don't keep stalking my git. ☘  
+if arguing or fighting at the moment, please don't stalk my git. ☘  
