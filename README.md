@@ -24,7 +24,7 @@ Dbls please dni.
 W2iuf. 
 
 
+Name says dni=dni.unless it says something like 'dniuf ' or 'dniuid '
 
+🌸⭐💧
 
-
-If arguing or fighting at the moment, please don't stalk my git. ☘
